@@ -13,7 +13,7 @@
 # Experience
 * 6 years of being an idol girl group "CGM48"
 * song writer
-* Release 2 self-produced songs: "bubbles in the sky" and "Be here with me -- Marmink Manichar
+* Release 2 self-produced songs: "bubbles in the sky" and "Be here with me - Marmink Manichar
 * Starred in the movie, "The cheese sisters"
 
   
