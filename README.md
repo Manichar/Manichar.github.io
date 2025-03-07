@@ -13,7 +13,7 @@
 # Experience
 * 6 years of being an idol girl group "CGM48"
 * song writer
-* Release 2 self-produced songs
+* Release 2 self-produced songs: "bubbles in the sky" and "Be here with me -- Marmink Manichar
 * Starred in the movie, "The cheese sisters"
 
   
@@ -28,4 +28,4 @@
 # Contact Info
 * [Web Page](https://Manichar.github.io)
 * [Instagram](https://www.instagram.com/marmink.cgm48official/)
-* [TokTok](https://www.tiktok.com/@marmink.cgm48official))
+* [TikTok](https://www.tiktok.com/@marmink.cgm48official))
