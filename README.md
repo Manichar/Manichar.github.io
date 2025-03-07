@@ -1,6 +1,7 @@
 <img src="http://manichar.github.io/img/R.jpg" alt="RPB Photo" align="right" width="30%"/>
 
-
-# Manichar.github.io
-
 # _Manichar Aimdilokwong_
+
+> Student
+> Payap University, English communication, Payap International college<br />
+> Amphur Muang, Chiang Mai 50000, Thailand<br />
