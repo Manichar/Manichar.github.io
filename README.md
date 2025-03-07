@@ -2,6 +2,6 @@
 
 # _Manichar Aimdilokwong_
 
-> Student
+> Student<br />
 > Payap University, English communication, Payap International college<br />
 > Amphur Muang, Chiang Mai 50000, Thailand<br />
