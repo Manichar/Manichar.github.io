@@ -1,4 +1,4 @@
-<img src="http://rbatzing.github.io/img/bob5.png" alt="RPB Photo" align="right" width="30%"/>
+<img src="http://Manichar.github.io/img/IMG_6010.JPG" alt="RPB Photo" align="right" width="30%"/>
 
 
 # _Manichar Aimdilokwong_
